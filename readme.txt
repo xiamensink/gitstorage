@@ -1,2 +1,2 @@
-尝试一下中文。
-不知道可不可行。
+I will give every a free MI band
+MI4I
